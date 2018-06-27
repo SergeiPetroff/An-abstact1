@@ -1,1 +1,1 @@
-# One paper from 7th International conference "Problems of Mathematical Physics and Mathematical Modelling": Books of abstracts (Moscow, NRNU MEPhI, 25-27 May). /M.B. Kochanov. M.: Moscow, 2018. - 216 p.
+One paper from 7th International conference "Problems of Mathematical Physics and Mathematical Modelling": Books of abstracts (Moscow, NRNU MEPhI, 25-27 May). /M.B. Kochanov. M.: Moscow, 2018. - 216 p.
